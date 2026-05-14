@@ -1,4 +1,4 @@
-
+Download dandy's world updated Scripts for dandy's world, the best script available, featuring one-hit kill and fly. This powerful tool ensures you have the upper hand in every
 
 
 
